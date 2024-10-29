@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Us:
 Agence de Marketing 360° | Propulsez votre marque avec des stratégies digitales sur mesure 💡<br>Notre mission chez Talentech est de propulser vos projets vers le succès en ligne. Nous offrons une gamme complète de services conçus pour répondre aux besoins de chaque entreprise :<br><br>Branding & Identité Visuelle : Création de marques fortes et mémorables qui captivent votre audience et renforcent votre positionnement sur le marché.<br><br>Développement Web & Mobile : Conception de sites web performants, réactifs, et optimisés pour l'expérience utilisateur, ainsi que d'applications mobiles innovantes.<br><br>Stratégie Marketing : Élaboration de stratégies marketing sur mesure, intégrant le SEO, la publicité en ligne (SEA), et la gestion des réseaux sociaux, pour maximiser votre visibilité et générer des leads qualifiés.<br><br>Formation & Conseil : Renforcement des compétences de vos équipes en marketing digital et technologie pour rester à la pointe de l'innovation.
 
 
